@@ -4,4 +4,4 @@ We are an adult bodily so please refrain from being weird to us if you're a mino
 
 ----------------------
 
-We are no longer associated with egberted and his ilk due to the henious things he has done that we are now aware of.
+We are no longer associated with "egberted" and his ilk due to the henious things he has done that we are now aware of.
