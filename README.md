@@ -6,5 +6,4 @@ We are an adult bodily so please refrain from being weird to us if you're a mino
 
 We are no longer associated with "egberted" and his ilk due to the henious things he has done that we are now aware of.
 
-censored view, (whisper for uncensored):
-https://docs.google.com/document/d/1pnKxGFZxfHdeAgC_pMsyWEUoufTfyBEGfm9a7JUpxWw/edit?usp=sharing
+censored view, (whisper for uncensored): https://docs.google.com/document/d/1pnKxGFZxfHdeAgC_pMsyWEUoufTfyBEGfm9a7JUpxWw/edit?usp=sharing
