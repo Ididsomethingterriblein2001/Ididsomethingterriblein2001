@@ -1,6 +1,6 @@
-Hi! We're Dash! We use it/its collectively when the fronter is unknown by outsiders!
+Name is Dash. Use it/its or he/him please.
 
-We are an adult bodily so please refrain from being weird to us if you're a minor. If you are being weird we will hide you! (This goes for anyone)
+We are an adult bodily so please refrain from being weird to us if you're a minor. If you are being weird we will hide you. (This goes for anyone and everyone)
 
 ----------------------
 
