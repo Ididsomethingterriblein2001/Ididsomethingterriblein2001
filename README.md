@@ -2,7 +2,7 @@ Name is Dash. Use it/its or he/him please.
 
 We are an adult bodily so please refrain from being weird to us if you're a minor. If you are being weird we will hide you. (This goes for anyone and everyone)
 
-Alters that are minors are still considered minors. They are not allowed to date anyone so like lmao.
+Alters that are minors are still considered minors. They are not allowed to date anyone so like lmao. Also they're only allowed on safe server.
 
 ----------------------
 
